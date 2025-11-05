@@ -2,7 +2,7 @@
 
 …
 Bread
-Cheese and tomato
+Tomato and Chicken and Tuna
 Bread
 …
 
