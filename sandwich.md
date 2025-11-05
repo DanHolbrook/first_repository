@@ -2,7 +2,7 @@
 
 …
 Bread
-Cheese
+Cheese and tomato
 Bread
 …
 
